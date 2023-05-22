@@ -1,3 +1,2 @@
 # Sotano
-si
 hola uwu
